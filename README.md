@@ -2,10 +2,6 @@
 
 This is a new world of **unicorns**. This is **not** a _human_ space.
 
-# Are there rainbows in unicrons's world?
+# Are there rainbows in unicorns's world?
 
-# unicorns
-# unicorns
-# unicorns
-# unicorns
-# unicorns
+##Of course. `#0969DA` Too many. 
