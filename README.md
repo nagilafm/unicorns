@@ -15,8 +15,8 @@ They are in [Unicorns memes](https://cheezburger.com/3443205/unicorn-memes-that-
 # Rules
 There are no rules, that's the beauty of it. I'm kidding, there are a couple:
 
-1. Sleep
-   - Eat
-     - Have fun!
+* Sleep
+* Eat
+* Have fun!
 
 This world looks great - it's ready! :shipit:
