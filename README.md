@@ -10,5 +10,4 @@ Of course. Too <sup>many</sup>.
 They are in [Unicorns memes](https://cheezburger.com/3443205/unicorn-memes-that-will-make-you-lol).
 
 Long-story short...
-![This is it]
 (https://i.pinimg.com/736x/b1/99/b2/b199b2de425ee1b9c80b55e4b08f754d.jpg)
