@@ -12,4 +12,11 @@ They are in [Unicorns memes](https://cheezburger.com/3443205/unicorn-memes-that-
 # Long-story short...
 ![Yes](https://i.pinimg.com/736x/b1/99/b2/b199b2de425ee1b9c80b55e4b08f754d.jpg)
 
+# Rules
+There are no rules, that's the beauty of it. I'm kidding, there are a couple:
+
+1. Sleep
+   - Eat
+     - Have fun!
+
 This world looks great - it's ready! :shipit:
