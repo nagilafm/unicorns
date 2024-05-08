@@ -2,10 +2,21 @@
 
 This is a new world of **unicorns**. This is **not** a _human_ space.
 
-# Are there rainbows in unicrons's world?
+# Are there rainbows in unicorns's world?
 
-# unicorns
-# unicorns
-# unicorns
-# unicorns
-# unicorns
+Of course. Too <sup>many</sup>. 
+
+# Where are the memes?
+They are in [Unicorns memes](https://cheezburger.com/3443205/unicorn-memes-that-will-make-you-lol).
+
+# Long-story short...
+![Yes](https://i.pinimg.com/736x/b1/99/b2/b199b2de425ee1b9c80b55e4b08f754d.jpg)
+
+# Rules
+There are no rules, that's the beauty of it. I'm kidding, there are a couple:
+
+* Sleep
+* Eat
+* Have fun!!
+
+This world looks great - it's ready! :shipit:
