@@ -13,7 +13,7 @@ resource "random_pet" "Dog" {
 
 variable "length" {
   type    = number
-  default = "51"
+  default = "50"
 }
 
 resource "random_id" "server" {
