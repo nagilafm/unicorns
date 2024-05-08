@@ -17,6 +17,6 @@ There are no rules, that's the beauty of it. I'm kidding, there are a couple:
 
 * Sleep
 * Eat
-* Have fun!
+* Have fun!!
 
 This world looks great - it's ready! :shipit:
